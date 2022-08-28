@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **divyeshparmar112001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/folders/1u0GRQCuiYfAiTZaugIhLojZR77u_1oHp](https://drive.google.com/drive/u/0/folders/1u0GRQCuiYfAiTZaugIhLojZR77u_1oHp)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ijL3mbFKdQZYJxANoVtXGmpp31Ppe-AY/view?usp=sharing](https://drive.google.com/file/d/1ijL3mbFKdQZYJxANoVtXGmpp31Ppe-AY/view?usp=sharing)
 
 - ⚡ Fun fact **I am funny**
 
